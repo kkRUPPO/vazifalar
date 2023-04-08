@@ -1,2 +1,2 @@
-﻿# telegrambot @beka7770777
+﻿# telegram @beka7770777
  
